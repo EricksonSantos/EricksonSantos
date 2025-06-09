@@ -18,6 +18,8 @@
 
 ### E-mail: esantosss@outlook.com
 
+###  DIsponível para trabalho!
+
 ### Redes Sociais!
  
 <div> 
