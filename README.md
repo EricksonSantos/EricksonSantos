@@ -16,9 +16,9 @@
  
 <br>
 
-### E-mail: esantosss@outlook.com
-
 ###  DIsponível para trabalho!
+
+### E-mail: esantosss@outlook.com
 
 ### Redes Sociais!
  
